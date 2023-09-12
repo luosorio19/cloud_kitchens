@@ -1,3 +1,3 @@
-### CLOUD KITCHENS BUSINESS 
-### LUCIA OSORIO
-### AUG 2023
+### Cloud Kitchens Business Case
+### Lucia Osorio
+### Aug 2023
